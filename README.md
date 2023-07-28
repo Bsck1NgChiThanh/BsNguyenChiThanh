@@ -17,6 +17,13 @@
   -  Còn rất nhiều gian nan trong giai đoạn 1 này, cụ thể hơn là môn Vật lý đại cương $A_{2}$ ôi chao nó khó lắm, tôi chỉ học 3 bài tập ví dụ của thầy, rất hên khi thi kết thúc đề thi ra trúng 2 bài trong 3 bài đó, đạt điểm 5. Hóa vô cơ và hữu cơ của thầy Chu Phạm Ngọc Sơn cũng không kém phần giày vò đau đớn, cuối kì cũng hên qua môn một cách thần kì. Còn một môn không khó nhưng lý thuyết khá dài đó là Sinh học đại cương $A_{2}$, vì bỏ thời gian đầu tư cho môn Tiếng Anh nên môn này qua môn cũng khá chật vật.
   -  Thi chuyển giai đoạn 2: Chuẩn bị thi chuyển giai đoạn qua bác sĩ đa khoa thì nhà tôi gặp sự cố, mẹ bệnh nặng trong cơn thập tử nhất sinh, tôi lúc nào cũng thầm mong mẹ được sống để cuộc đời của những đứa con có nơi nương tựa, cuối cùng cũng được toại nguyện, mẹ trở về từ cõi chết, trong lòng vui biết bao nhiêu. Thế rồi kì thi chuyển giai đoạn đã đến, thi 2 môn (môn 1: Tiếng Anh, môn 2 là môn phối hợp Hóa-Sinh) môn Anh văn lại là môn may mắn với bài thi hôm đó, buổi tối trước thi tôi đọc bài Con tàu Titanic trong "Streamline English Book four" sáng ra thi y chang, tôi đã đậu sang giai đoạn 2 như ý nguyện.
   -  Học giai đoạn 2 lớp **"Y-Nha K21"** tại Khoa Y Trường Đại học Cần Thơ, tốt nghiệp ra trường tôi về quê hương phục vụ.
+  -  Ra trường 7/2001.
+## THỜI KÌ RA TRƯỜNG BÁC SĨ ##
+- Tháng 7/2021 vừa ra trường tôi xin vào TTYT Huyện Đầm Dơi (Nay là BVĐK Đầm Dơi).
+- Tháng 8/2021, tôi lên hỏi trưởng phòng tổ chức, ông ấy trả lời **""Hết hạn làm hồ sơ rồi, năm sau đi"** câu nói có phần thiếu trách nhiệm. Tôi hơi bực nhưng cũng kèm chế cảm xúc, ra bưu điện Đầm Dơi điện lên SYT Cà Mau hỏi về việc nộp hồ sơ thi tuyển biên chế mới biêt còn 4 ngày nữa mới hết hạn rồi họ cũng cho biết hồ sơ gồm những gì, tôi chạy vội lên SYT mua bộ sồ sơ, bắt xe về Trường Đại học Cần Thơ vào Khoa Y xin giấy xác nhận đã thi đậu tốt nghiệp, trở về nộ hồ sơ thi biên chế với danh nghĩa thí sinh tự do.
+- Ngày 08/9/2001 tôi lên Cà Mau thi biên chế, hôm sau thi là ngày sự cố lớn nhất nước Mỹ (11/9), thi đậu biên chế tôi được tuyển vào Khoa Nội tổng hợp TTYT Đầm Dơi (Nay là BVĐK Đầm Dơi).
+- Tháng 05/2002, một bác sĩ trưởng trạm y tế Tân Duyệt (đóng tại chợ Ấp 9 Bào Sen) bị tai nạn võ lãi chết, tôi được điều động tạm thời về đó, đã nhiều lần xin quyết định về đó làm nhưng không được chập thuận (đời đâu như là mơ), sau đó TTYT liền quyết định Bs Nguyễn Tấn Lợi về giữ quyền trưởng trạm ở đấy, rút tôi về lại TTYT vào cuối tháng 6/2002.
+- Ngày 30/7/2002, tôi được điều về làm trưởng trạm y tế xã Tân Đức, đường đi xa, không có đường xe chỉ có đường thủy mà thôi. Ôi nhà gần xin ở công tác ở trạm y tế xã Tân Duyệt mà không cho, cho về một xã rất xa. 
   -  Còn tiếp tục cập nhật.
 
 

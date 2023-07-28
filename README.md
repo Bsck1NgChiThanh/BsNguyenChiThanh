@@ -19,6 +19,7 @@
   -  Học giai đoạn 2 lớp **"Y-Nha K21"** tại Khoa Y Trường Đại học Cần Thơ, tốt nghiệp ra trường tôi về quê hương phục vụ.
   -  Ra trường 7/2001.
 ## THỜI KÌ RA TRƯỜNG BÁC SĨ ##
+### GIAI ĐOẠN GIAN TRUÂN: ###
 - Tháng 7/2021 vừa ra trường tôi xin vào TTYT Huyện Đầm Dơi (Nay là BVĐK Đầm Dơi).
 - Tháng 8/2021, tôi lên hỏi trưởng phòng tổ chức về việc thi biên chế, ông ấy trả lời **""Hết hạn làm hồ sơ rồi, năm sau đi"** câu nói có phần thiếu trách nhiệm. Tôi hơi bực nhưng cũng kèm chế cảm xúc, ra bưu điện Đầm Dơi điện lên SYT Cà Mau hỏi về việc nộp hồ sơ thi tuyển biên chế mới biêt còn 4 ngày nữa mới hết hạn rồi họ cũng cho biết hồ sơ gồm những gì, tôi chạy vội lên SYT mua bộ sồ sơ, bắt xe về Trường Đại học Cần Thơ vào Khoa Y xin giấy xác nhận đã thi đậu tốt nghiệp, trở về nộ hồ sơ thi biên chế với danh nghĩa thí sinh tự do.
 - Ngày 08/9/2001 tôi lên Cà Mau thi biên chế, hôm sau thi là ngày sự cố lớn nhất nước Mỹ (11/9), thi đậu biên chế tôi được tuyển vào Khoa Nội tổng hợp TTYT Đầm Dơi (Nay là BVĐK Đầm Dơi).
@@ -26,7 +27,14 @@
 - Ngày 30/7/2002, tôi được điều về làm trưởng trạm y tế xã Tân Đức, đường đi xa, không có đường xe chỉ có đường thủy mà thôi. Ôi nhà gần xin ở công tác ở trạm y tế xã Tân Duyệt mà không cho, cho về một xã rất xa...
   -  Mới xuống làm trưởng trạm, chân ướt chân ráo, lại gặp rất nhiều tay cao thủ trong trạm, muốn xử lý triệt để thì cũng gặp rất nhiều khó khăn và phức tạp, có xin ý kiến để giải quyết thì lãnh đạo trả lời một hướng chung chung, rối não. Tôi nghĩ rằng trường đại học dạy dỗ và đào tạo một người bác sĩ nhưng khi họ ra trường thì kinh nghiệm về chuyện quản lí và xử lý công việc thì rỗng toét, đáng lí họ phải dành ít nhất một block book để hướng dẫn sinh viên nắm rõ những vấn đề như vậy.
   -  Ngày 22/12/2002 (19/11/2002 Âm lịch) là ngày đám cưới của tôi, thế mà chỉ cho nghỉ đúng 3 ngày, xin thêm 2 ngày nữa cũng chả được, sau đám cưới tôi phải đưa vợ về trạm y tế tiếp tục công tác, vợ tôi ở đó đến hết tuần rồi về tiếp tục dạy học tại trường THPT Đầm Dơi.
-  -  Công tác ở đó 2 năm, trong quá trình công tác tôi tha thiết xin trở về TTYT nhưng lãnh đạo không cho, nói cắm tôi ở đó lâu hơn, chừng nào có bác sĩ sẽ cho thay thế rồi rút tôi về (biết bao giờ mới về cơ chứ...), để được quay về lại TTYT tôi phải ghiến răng làm nhiều điều mà mình không muốn làm, tháng 8/2005 được quay về TTYT làm tại Khoa Khám bệnh (năm đó suýt tí nữa là nhận tờ kỹ luật, thay vào đó là xét thi đua đạt loại C - Hoàn thành nhiệm vụ)
+  -  Công tác ở đó 2 năm, trong quá trình công tác tôi tha thiết xin trở về TTYT nhưng lãnh đạo không cho, nói cắm tôi ở đó lâu hơn, chừng nào có bác sĩ sẽ cho thay thế rồi rút tôi về (biết bao giờ mới về cơ chứ...), để được quay về lại TTYT tôi phải ghiến răng làm nhiều điều mà mình không muốn làm, tháng 8/2005 được quay về TTYT làm tại Khoa Khám bệnh (năm đó suýt tí nữa là nhận tờ kỹ luật, thay vào đó là xét thi đua chỉ hoàn thành nhiệm vụ)
+  -  Sau một thời gian dài đầy vất vả gian truân, ngày 04/4/2008 được bổ nhiệm làm phó Khoa Nội tổng hợp, 30/4/2008 kết nạp vào Đảng Cộng sản Việt Nam. Tôi thấy mình có năng khiếu trong lĩnh vực cấp cứu nên tôi đã xin được về làm khoa CC-HSTC-CĐ, làm phó khoa ở đây từ 30/9/2009 đến 2016, ngày 21/11/2016 đến nay làm trưởng khoa CC-HSTC-CĐ.
+### VỀ ĐẢNG: ###
+- 30/4/2008 Kết nạp vào Đảng Cộng sản Việt Nam.
+- 30/4/2009 Chuyển chính thức.
+- Làm phó bí thư chi bộ Khoa Khám bệnh khóa VI (2010-2012), năm 2011 đi học tập trung chuyên khoa cấp 1 Nội tổng quát nên thôi giữ chức phó bí thư.
+- Làm bí thư chi bộ Khoa Khám bệnh khóa IX, X, XI (2017-2020; 2020-2023; 2023-2025)
+- Năm 2020 được bầu bổ sung vào đảng ủy viên  Bệnh viện Khóa VI nhiệm kì 2015-2020, trúng cử đảng ủy viên Khóa VII nhiệm kì 2020-2025.
   -  Còn tiếp tục cập nhật.
 
 

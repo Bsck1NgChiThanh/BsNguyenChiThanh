@@ -35,6 +35,10 @@
 - Làm phó bí thư chi bộ Khoa Khám bệnh khóa VI (2010-2012), năm 2011 đi học tập trung chuyên khoa cấp 1 Nội tổng quát nên thôi giữ chức phó bí thư.
 - Làm bí thư chi bộ Khoa Khám bệnh khóa IX, X, XI (2017-2020; 2020-2023; 2023-2025)
 - Năm 2020 được bầu bổ sung vào đảng ủy viên  Bệnh viện Khóa VI nhiệm kì 2015-2020, trúng cử đảng ủy viên Khóa VII nhiệm kì 2020-2025.
-  -  Còn tiếp tục cập nhật.
+### VỀ CHUYÊN MÔN: ###
+- Tốt nghiệp bác sĩ đa khoa chính quy 7/2001.
+- Lấy chứng chỉ C Anh văn 9/2011
+- 
+        -  Còn tiếp tục cập nhật. 
 
 

@@ -34,11 +34,32 @@
 - 30/4/2009 Chuyển chính thức.
 - Làm phó bí thư chi bộ Khoa Khám bệnh khóa VI (2010-2012), năm 2011 đi học tập trung chuyên khoa cấp 1 Nội tổng quát nên thôi giữ chức phó bí thư.
 - Làm bí thư chi bộ Khoa Khám bệnh khóa IX, X, XI (2017-2020; 2020-2023; 2023-2025)
-- Năm 2020 được bầu bổ sung vào đảng ủy viên  Bệnh viện Khóa VI nhiệm kì 2015-2020, trúng cử đảng ủy viên Khóa VII nhiệm kì 2020-2025.
-### VỀ CHUYÊN MÔN: ###
+- Năm 20/3/2018 được bầu bổ sung vào đảng ủy viên  Bệnh viện Khóa VI nhiệm kì 2015-2020, trúng cử đảng ủy viên Khóa VII nhiệm kì 2020-2025.
+### VỀ CHUYÊN MÔN NGHIỆP VỤ: ###
 - Tốt nghiệp bác sĩ đa khoa chính quy 7/2001.
 - Lấy chứng chỉ C Anh văn 9/2011
-- 
-        -  Còn tiếp tục cập nhật. 
+- Tốt nghiệp chuyên khoa cấp 1 Nội tổng quát năm 2013.
+- Lấy chứng chỉ B Tin học 7/2013.
+- Hoàn thành lớp quản lý nhà nước chương trình chuyên viên 11/2014.
+- Hoàn thành lớp ECG 12/2017.
+- Hoàn thành lớp hoàn chỉnh trung cấp chính trị 06/2018.
+- Lấy băng B1 Anh văn 8/2019.
+- Lấy chứng chỉ hạn chức danh nghề nghiệp 8/2023.
+### NĂNG KHIẾU: ###
+- Có nhiều năng khiếu:
+  - Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng...
+  - Có năng khiếu về giảng dạy truyền thụ kiến thức.
+  - Đang tập tành học thêm năng khiếu quan hệ công chúng.
+  - ...
+  - Còn nhiều!
+- Không có năng khiếu về âm nhạc, đây là điều làm tôi phải thẹn!
+### VỀ KHEN THƯỞNG VÀ KỶ LUẬT: ###
+- Rất nhiều giấy biểu dương.
+- Nhiều giấy khen chiến sĩ thi đua cấp cơ sở.
+- Bốn bằng khen của UBND Tỉnh.
+- Một bằng khen của Thủ tướng.
 
+  
+  - Còn tiếp tục cập nhật. 
 
+  

@@ -44,7 +44,7 @@
 - Hoàn thành lớp ECG 12/2017.
 - Hoàn thành lớp hoàn chỉnh trung cấp chính trị 06/2018.
 - Lấy băng B1 Anh văn 8/2019.
-- Lấy chứng chỉ hạn chức danh nghề nghiệp 8/2023.
+- Lấy chứng chỉ hạn chức danh nghề nghiệp 9/2023.
 ### NĂNG KHIẾU: ###
 - Có nhiều năng khiếu:
   - Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng...

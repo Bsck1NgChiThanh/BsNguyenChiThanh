@@ -1,10 +1,12 @@
+![Anh Bs Thanh 4x6](https://github.com/Sale-Office365/BsNguyenChiThanh/assets/103977676/50686b57-edd9-4dcc-9482-f7672df9365f)
+
 # BSCK1 Nguyễn Chí Thành #
 
 ## THỜI NIÊN THIẾU ##
 
 - Sinh ngày 15/12/1976.
 - Nguyên quán: Ấp Tân Phú, Xã Tân Dân, Huyện Đầm Dơi, Tỉnh Cà Mau.
-- Từ bé sinh ra trong một gia đình nghèo khó, gia đình có khoản 10.000 $m^2$ đất nông nghiệp để canh tác, nhà 5 khẩu (Cha, mẹ, anh, chị và tôi), làm vất vả cực nhọc mà kiếm cái ăn vẫn khó khăn, điều này đã làm tôi trăn trở, càng ngày tôi càng trầm tính, nuôi ước nguyện một ngày nào đó sẽ vương lên cải thiện được số phận; kể từ đó tôi xác định được mục tiêu chỉ có học mới có thể giúp tôi hoàn thành tâm nguyện. Kể từ đó tôi bất đầu học như một con "mọt sách", ban ngày tôi học ban đên tôi ngẫm lại những gì đã học được và đã làm được thế mà vẫn còn quên khá nhiều, thầm nghĩ: tại sao một câu chuyện cười chỉ đọc một lần hoặc nghe một lần là mãi mãi không quên còn bài học thì tụng hoài mà vẫn còn khó nhớ... sau rất nhiều ngày ngẫm nghĩ đã ngộ ra một cảnh giới tương đối hay đó là câu nói nỗi tiếng: **"Từ trực quan sinh động đến tư duy trừu tượng"**, từ tư duy trừu tượng mới tạo được đường mòn trí tuệ. Kể từ đó tất cả cả bài học tôi đều chuyển thành một mẫu chuyện một sơ đồ hết sức ngắn ngọn, dễ học, dễ nhớ; ngày tôi học tối tôi ngẫm lại và tôi đã thành công.
+- Từ bé sinh ra trong một gia đình nghèo khó, gia đình có khoản 10.000 $m^2$ đất nông nghiệp để canh tác, nhà 5 khẩu (Cha, mẹ, anh, chị và tôi), làm vất vã cực nhọc mà kiếm cái ăn vẫn khó khăn, điều này đã làm tôi trăn trở, càng ngày tôi càng trầm tính, nuôi ước nguyện một ngày nào đó sẽ vương lên cải thiện được số phận; kể từ đó tôi xác định được mục tiêu chỉ có học mới có thể giúp tôi hoàn thành tâm nguyện. Kể từ đó tôi bất đầu học như một con "mọt sách", ban ngày tôi học ban đên tôi ngẫm lại những gì đã học được và đã làm được thế mà vẫn còn quên khá nhiều, thầm nghĩ: tại sao một câu chuyện cười chỉ đọc một lần hoặc nghe một lần là mãi mãi không quên còn bài học thì tụng hoài mà vẫn còn khó nhớ... sau rất nhiều ngày ngẫm nghĩ đã ngộ ra một cảnh giới tương đối hay đó là câu nói nỗi tiếng: **"Từ trực quan sinh động đến tư duy trừu tượng"**, từ tư duy trừu tượng mới tạo được đường mòn trí tuệ. Kể từ đó tất cả cả bài học tôi đều chuyển thành một mẫu chuyện một sơ đồ hết sức ngắn ngọn, dễ học, dễ nhớ; ngày tôi học tối tôi ngẫm lại và tôi đã thành công.
 - Sự thành công đầu tiên và đáng nhớ của tôi là đạt được giải khuyển khích môn Toán vòng Tỉnh năm học 1993-1994, tuy giải thấp nhưng đối với một cậu học trò nghèo tự vương lên bằng nổ lực của chính mình, [bấm vào đây xem kết quả](https://thpt-damdoi-camau.edu.vn/about/thanh-tich-hoc-sinh-gioi-tu-nam-1985-2005.html), sự vui mừng đến rơi nước mắt.
 - Kết quả thi lớp 12 tương đối, thời đó thi tốt nghiệp 4 môn: Toán 9.0, Hóa 8.5, Văn 6,5 Lịch sử 9,5
 - Thi đậu vào Khối Sinh học Khóa 20 Trường Đại học Cấn Thơ, Khu 2 đường 3/2 thành phố Cần Thơ. Thuở ấy đào tào theo chương trình hợp tác với Đại học Hà Lan; giai đoạn 1: học đại học cơ sở thời gian 1,5 năm, sau khi hoàn tất sinh viên được đăng kí dự thi vào giai đoạn 2 (gồm nhiều ngành của khối Sinh học như: Bác sĩ đa khoa, Nha, chế biến, nuôi trồng thủy sản, chăn nuôi thú y...). Đó mới chính là một cuộc cạnh tranh đầy khốc liệt của tôi, một ý chí hết sức dị thường.
@@ -44,7 +46,7 @@
 - Hoàn thành lớp ECG 12/2017.
 - Hoàn thành lớp hoàn chỉnh trung cấp chính trị 06/2018.
 - Lấy băng B1 Anh văn 8/2019.
-- Lấy chứng chỉ hạn chức danh nghề nghiệp 9/2023.
+- Lấy chứng chỉ hạn chức danh nghề nghiệp 8/2023.
 ### NĂNG KHIẾU: ###
 - Có nhiều năng khiếu:
   - Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng...
@@ -63,3 +65,4 @@
 ### Thời kì quá 2/3 đời người:
   - Rất mệt mỏi vì cuộc sống cơm áo gạo tiền.
   - Mệt mỏi vì danh vọng và địa vị, muốn buông bỏ tất cả để trở lại một cuộc sống an bình, sáng đi làm chiều về ngủ một giấc cùng vợ là không gì bằng. Sống bôn chen làm cho đầu óc bắt đầu căng thẳng, tưởng chừng như không thể vượt qua.
+  

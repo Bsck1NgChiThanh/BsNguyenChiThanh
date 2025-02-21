@@ -62,6 +62,9 @@
 - Một bằng khen của Thủ tướng.
  - Còn tiếp tục cập nhật. 
 
+### VỀ LÃNH ĐẠO KHOA ###
+- Năm 2016 làm trưởng khoa CC-HSTC-CĐ cho đến nay, khoa liên tục đạt thứ hạn cao trong Bệnh viện, nhiều năm liền khoa đạt TTLĐXS, nhiều bằng khen của UBND Tỉnh,...
+
 ### Thời kì quá 2/3 đời người:
   - Rất mệt mỏi vì cuộc sống cơm áo gạo tiền.
   - Mệt mỏi vì danh vọng và địa vị, muốn buông bỏ tất cả để trở lại một cuộc sống an bình, sáng đi làm chiều về ngủ một giấc cùng vợ là không gì bằng. Sống bôn chen làm cho đầu óc bắt đầu căng thẳng, tưởng chừng như không thể vượt qua.

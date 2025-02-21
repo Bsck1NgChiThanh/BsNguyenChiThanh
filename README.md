@@ -49,7 +49,7 @@
 - Lấy chứng chỉ hạn chức danh nghề nghiệp 8/2023.
 ### NĂNG KHIẾU: ###
 - Có nhiều năng khiếu:
-  - Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng...
+  - Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng... (trang Web cá nhân: https://sites.google.com/view/bsnguyenchithanh, trang github: https://github.com/BsNgChiThanh ...)
   - Có năng khiếu về giảng dạy truyền thụ kiến thức.
   - Đang tập tành học thêm năng khiếu quan hệ công chúng.
   - ...

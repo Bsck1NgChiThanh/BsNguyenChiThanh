@@ -62,8 +62,11 @@
 - Một bằng khen của Thủ tướng.
  - Còn tiếp tục cập nhật. 
 
-### VỀ LÃNH ĐẠO KHOA ###
-- Năm 2016 làm trưởng khoa CC-HSTC-CĐ cho đến nay, khoa liên tục đạt thứ hạn cao trong Bệnh viện, nhiều năm liền khoa đạt TTLĐXS, nhiều bằng khen của UBND Tỉnh,...
+### VỀ CHÍNH QUYỀN ###
+- Tháng 4/2005 làm trưởng trạm y tế xã Tân Đức, Đầm Dơi, Cà Mau.
+- Tháng 4/2008 làm phó khoa Nội tổng hợp BV Đa khoa Đầm Dơi.
+- Tháng 9/2009 làm phó khoa CC-HSTC-CĐ.
+- Tháng 11/2016 làm trưởng khoa CC-HSTC-CĐ cho đến nay, khoa liên tục đạt thứ hạn cao trong Bệnh viện, nhiều năm liền khoa đạt TTLĐXS, nhiều bằng khen của UBND Tỉnh,...
 
 ### Thời kì quá 2/3 đời người:
   - Rất mệt mỏi vì cuộc sống cơm áo gạo tiền.

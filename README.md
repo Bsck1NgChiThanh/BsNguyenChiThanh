@@ -1,4 +1,4 @@
-![Anh Bs Thanh 4x6](https://github.com/Sale-Office365/BsNguyenChiThanh/assets/103977676/50686b57-edd9-4dcc-9482-f7672df9365f)
+![Ản Bs Thành 4x6](https://github.com/user-attachments/assets/b355f750-c50b-409b-91a1-2a6f218b5211)
 
 # BSCK1 Nguyễn Chí Thành #
 

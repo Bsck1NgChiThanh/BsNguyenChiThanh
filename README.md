@@ -14,6 +14,7 @@
   -  Ngày đầu tiên học giáo trình tại trung tâm với "Streamline English Book one", tôi còn nhớ rõ như in bài đầu tiên:
 
      ![image](https://github.com/Bsck1NgChiThanh/BsNguyenChiThanh/assets/140607849/6c53320b-bb96-4b4e-8bae-a2d316673fd5)
+     
      ![image](https://github.com/Bsck1NgChiThanh/BsNguyenChiThanh/assets/140607849/d5e64155-7aa6-4515-9926-ff84e34a2e00)
      
   -  Chỉ có thế thôi mà học 1 tuần chả thuộc, cứ học trước quên sau, học sau quên trước, đau lòng.

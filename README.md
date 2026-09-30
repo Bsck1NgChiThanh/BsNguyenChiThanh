@@ -104,7 +104,7 @@
 ### VỀ KHEN THƯỞNG VÀ KỶ LUẬT: ###
 
  <p align="justify">
-&#12288;&#12288;Rất nhiều giấy biểu dương. Nhiều giấy khen chiến sĩ thi đua cấp cơ sở. Bốn bằng khen của UBND Tỉnh. Một bằng khen của Thủ tướng. 
+&#12288;&#12288;Rất nhiều giấy biểu dương. Nhiều giấy khen chiến sĩ thi đua cấp cơ sở. Bốn bằng khen của UBND Tỉnh. Một bằng khen của Thủ tướng. Nhận Kỷ niệm chương "Vì sức khỏe nhân dân" năm 2026 (quyết định bấm vào link sau https://drive.google.com/file/d/102e9Xsme0ovt7d1TQRjAqfnWbc9kncrt/view?usp=drive_link)
 </p>
     
 Đang xét tặng: [Huân chương Lao động hạng Ba](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599). 

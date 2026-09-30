@@ -107,12 +107,13 @@
 &#12288;&#12288;Rất nhiều giấy biểu dương. Nhiều giấy khen chiến sĩ thi đua cấp cơ sở. Bốn bằng khen của UBND Tỉnh. Một bằng khen của Thủ tướng. 
 </p>
     
-- Đang xét tặng: [Huân chương Lao động hạng Ba](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599). 
+Đang xét tặng: [Huân chương Lao động hạng Ba](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599). 
 
-- Đang xét tặng: [Thầy thuốc ưu tú](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag).
+Đang xét tặng: [Thầy thuốc ưu tú](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag).
 
-- Còn tiếp tục cập nhật...
- 
+ <p align="justify">
+&#12288;&#12288;Còn tiếp tục cập nhật...
+</p>
  
 ### VỀ CHÍNH QUYỀN ###
 

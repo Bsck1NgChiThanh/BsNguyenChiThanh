@@ -43,9 +43,9 @@
   </li>
 </ul>
 
-     ![image](https://github.com/Bsck1NgChiThanh/BsNguyenChiThanh/assets/140607849/6c53320b-bb96-4b4e-8bae-a2d316673fd5)
+![image](https://github.com/Bsck1NgChiThanh/BsNguyenChiThanh/assets/140607849/6c53320b-bb96-4b4e-8bae-a2d316673fd5)
      
-     ![image](https://github.com/Bsck1NgChiThanh/BsNguyenChiThanh/assets/140607849/d5e64155-7aa6-4515-9926-ff84e34a2e00)
+![image](https://github.com/Bsck1NgChiThanh/BsNguyenChiThanh/assets/140607849/d5e64155-7aa6-4515-9926-ff84e34a2e00)
      
  <ul>
   <li align="justify">   
@@ -89,14 +89,20 @@
   -  Còn tiếp tục cập nhật...  
 
 ### Vợ:
-- Lê Thị Trang, Sinh ngày 20/3/1977, Quê ở Hoàng Sơn, Nông Cống, Thanh Hóa.
-- Ra trường đại học năm 2001, làm giáo viên ngữ văn trường THPT Đầm Dơi.
-- Còn tiếp tục cập nhật...  
+
+ <ul>
+  <li align="justify"> 
+    Lê Thị Trang, Sinh ngày 20/3/1977, Quê ở Hoàng Sơn, Nông Cống, Thanh Hóa. Ra trường đại học năm 2001, làm giáo viên ngữ văn trường THPT Đầm Dơi. Còn tiếp tục cập nhật...  
+  </li>
+</ul>      
 
 ### Con:
-- Nguyễn Lê Thái Bảo, Sinh ngày 10/02/2004.
-- Hiện là sinh viên
-- Còn tiếp tục cập nhật...  
+
+ <ul>
+  <li align="justify"> 
+    Nguyễn Lê Thái Bảo, Sinh ngày 10/02/2004. Hiện là sinh viên. Còn tiếp tục cập nhật...
+  </li>
+</ul>  
 
 ### VỀ ĐẢNG: ###
 
@@ -107,49 +113,52 @@
 </ul>    
 
 ### VỀ CHUYÊN MÔN NGHIỆP VỤ: ###
-- Tốt nghiệp bác sĩ đa khoa chính quy 7/2001.
-- Lấy chứng chỉ C Anh văn 9/2011
-- Tốt nghiệp chuyên khoa cấp 1 Nội tổng quát năm 2013.
-- Lấy chứng chỉ B Tin học 7/2013.
-- Hoàn thành lớp quản lý nhà nước chương trình chuyên viên 11/2014.
-- Hoàn thành lớp ECG 12/2017.
-- Hoàn thành lớp hoàn chỉnh trung cấp chính trị 06/2018.
-- Lấy băng B1 Anh văn 8/2019.
-- Lấy chứng chỉ hạn chức danh nghề nghiệp 8/2023.
-- Tháng 4/2026 thăng lên bác sĩ hạng II
+
+ <ul>
+  <li align="justify"> 
+    Tốt nghiệp bác sĩ đa khoa chính quy 7/2001. Lấy chứng chỉ C Anh văn 9/2011. Tốt nghiệp chuyên khoa cấp 1 Nội tổng quát năm 2013. Lấy chứng chỉ B Tin học 7/2013. Hoàn thành lớp quản lý nhà nước chương trình chuyên viên 11/2014. Hoàn thành lớp ECG 02/2017. - Hoàn thành lớp hoàn chỉnh trung cấp chính trị 06/2018. Lấy băng B1 Anh văn 8/2019. Lấy chứng chỉ hạn chức danh nghề nghiệp 8/2023. Tháng 4/2026 thăng lên bác sĩ hạng II
+  </li>
+</ul>   
 
 ### NĂNG KHIẾU: ###
-- Có nhiều năng khiếu:
-  - Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng... (trang Web cá nhân: https://sites.google.com/view/bsnguyenchithanh, trang github: https://github.com/Bsck1NgChiThanh , trang Web của khoa: https://sites.google.com/view/khoacapcuubvdamdoi ...)
-  - Có năng khiếu về giảng dạy truyền thụ kiến thức.
-  - Đang tập tành học thêm năng khiếu quan hệ công chúng.
-  - ...
-  - Còn nhiều!
-- Không có năng khiếu về âm nhạc, đây là điều làm tôi phải thẹn!
+
+ <ul>
+  <li align="justify"> 
+  Có nhiều năng khiếu: Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng... (trang Web cá nhân: https://sites.google.com/view/bsnguyenchithanh, trang github: https://github.com/Bsck1NgChiThanh , trang Web của khoa: https://sites.google.com/view/khoacapcuubvdamdoi ...). Có năng khiếu về giảng dạy truyền thụ kiến thức. Đang tập tành học thêm năng khiếu quan hệ công chúng ... Còn nhiều! Không có năng khiếu về âm nhạc, đây là điều làm tôi phải thẹn!
+  </li>
+</ul>   
 
 ### VỀ KHEN THƯỞNG VÀ KỶ LUẬT: ###
-- Rất nhiều giấy biểu dương.
-- Nhiều giấy khen chiến sĩ thi đua cấp cơ sở.
-- Bốn bằng khen của UBND Tỉnh.
-- Một bằng khen của Thủ tướng.
-- Đang xét tặng: [Huân chương Lao động hạng Ba](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599)
-- Đang xét tặng: [Thầy thuốc ưu tú](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag)
-- Còn tiếp tục cập nhật...
 
+ <ul>
+  <li align="justify"> 
+    Rất nhiều giấy biểu dương. Nhiều giấy khen chiến sĩ thi đua cấp cơ sở. Bốn bằng khen của UBND Tỉnh. Một bằng khen của Thủ tướng. Đang xét tặng: [Huân chương Lao động hạng Ba](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599). Đang xét tặng: [Thầy thuốc ưu tú](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag). Còn tiếp tục cập nhật...
+  </li>
+</ul>  
+ 
 ### VỀ CHÍNH QUYỀN ###
-- Tháng 4/2005 làm trưởng trạm y tế xã Tân Đức, Đầm Dơi, Cà Mau.
-- Tháng 4/2008 làm phó khoa Nội tổng hợp BV Đa khoa Đầm Dơi.
-- Tháng 9/2009 làm phó khoa CC-HSTC-CĐ.
-- Tháng 11/2016 làm trưởng khoa CC-HSTC-CĐ cho đến nay, khoa liên tục đạt thứ hạn cao trong Bệnh viện, nhiều năm liền khoa đạt TTLĐXS, nhiều bằng khen của UBND Tỉnh,...
+
+ <ul>
+  <li align="justify"> 
+  Tháng 4/2005 làm trưởng trạm y tế xã Tân Đức, Đầm Dơi, Cà Mau. Tháng 4/2008 làm phó khoa Nội tổng hợp BV Đa khoa Đầm Dơi. Tháng 9/2009 làm phó khoa CC-HSTC-CĐ. Tháng 11/2016 làm trưởng khoa CC-HSTC-CĐ cho đến nay, khoa liên tục đạt thứ hạn cao trong Bệnh viện, nhiều năm liền khoa đạt TTLĐXS, nhiều bằng khen của UBND Tỉnh,...
+  </li>
+</ul>  
 
 ### Thời kì quá 2/3 đời người:
-  - Rất mệt mỏi vì cuộc sống cơm áo gạo tiền.
-  - Mệt mỏi vì danh vọng và địa vị, muốn buông bỏ tất cả để trở lại một cuộc sống an bình, sáng đi làm chiều về ngủ một giấc cùng vợ là không gì bằng. Sống bôn chen làm cho đầu óc bắt đầu căng thẳng, tưởng chừng như không thể vượt qua.
- - Còn tiếp tục cập nhật...  
+
+ <ul>
+  <li align="justify"> 
+    Rất mệt mỏi vì cuộc sống cơm áo gạo tiền. Mệt mỏi vì danh vọng và địa vị, muốn buông bỏ tất cả để trở lại một cuộc sống an bình, sáng đi làm chiều về ngủ một giấc cùng vợ là không gì bằng. Sống bôn chen làm cho đầu óc bắt đầu căng thẳng, tưởng chừng như không thể vượt qua. Còn tiếp tục cập nhật...
+  </li>
+</ul>  
 
 ### Tâm nguyện lúc tuổi già.
-  - Đời người đâu ai thoát khỏi quy luật của tạo hóa: **sinh, lão, bệnh, tử** nếu một mai tôi già cõi và chết đi, hãy thiêu và tro cốt vãi ra biển để được quay về với cát bụi.
-  - Nếu sống một đời sống thực vật thì hãy cho tôi một cái chết nhân đạo, để tôi ra đi thanh thản, không gánh nặng cho gia đình và cho xã hội.
-  - Xin cảm ơn tất cả!
+
+ <ul>
+  <li align="justify"> 
+  Đời người đâu ai thoát khỏi quy luật của tạo hóa: **sinh, lão, bệnh, tử** nếu một mai tôi già cõi và chết đi, hãy thiêu và tro cốt vãi ra biển để được quay về với cát bụi. Nếu sống một đời sống thực vật thì hãy cho tôi một cái chết nhân đạo, để tôi ra đi thanh thản, không gánh nặng cho gia đình và cho xã hội. Xin cảm ơn tất cả!
+  </li>
+</ul>  
+
 
 
